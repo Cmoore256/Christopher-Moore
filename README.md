@@ -12,3 +12,9 @@ Sec+
 Google UX Design
 Bachelors in Psychology
 TripleTen Business Intellience Analyst
+
+LinkedIN:
+www.linkedin.com/in/christopher-moore-a18158134
+
+Resume:
+coming soon!
