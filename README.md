@@ -17,4 +17,4 @@ LinkedIN:
 www.linkedin.com/in/christopher-moore-a18158134
 
 Resume:
-coming soon!
+https://docs.google.com/document/d/1I4oBed184_ahRQORhETO7nJBgCvOI1QFjXzb3L24UVo/edit?usp=sharing
